@@ -9,9 +9,9 @@ Elizabeth May  |  8,327 |   142 | 248 | 36%
 As of: 2019-10-15 10:25:59
 
 **Video Links**
-- [Maxime Bernier](https://youtu.be/X_IUY25ajUU
-- [Andrew Scheer](https://youtu.be/6zVtckrxLmo
-- [Jagmeet Singh](https://youtu.be/DnIzty_VQvs
-- [Justin Trudeau](https://youtu.be/YSg27gaztys
-- [Elizabeth May](https://youtu.be/rcwNJEHJVus
+- [Maxime Bernier](https://youtu.be/X_IUY25ajUU)
+- [Andrew Scheer](https://youtu.be/6zVtckrxLmo)
+- [Jagmeet Singh](https://youtu.be/DnIzty_VQvs)
+- [Justin Trudeau](https://youtu.be/YSg27gaztys)
+- [Elizabeth May](https://youtu.be/rcwNJEHJVus)
 
