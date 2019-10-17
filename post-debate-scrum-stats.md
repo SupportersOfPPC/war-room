@@ -1,5 +1,5 @@
 Post-Debate Scrum | Views | Likes | Dislikes | Approval
---- | ---: | ---: | ---: | ---: | ---:
+--- | ---: | ---: | ---: | ---:
 Maxime Bernier       |  87,512 |   4,824 |     297 | 94%
 Andrew Scheer        |  72,701 |     861 |     828 | 51%
 Jagmeet Singh        |  50,046 |     609 |     494 | 55%
