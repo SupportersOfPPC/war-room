@@ -98,7 +98,20 @@ The #PeoplesPartyOfCanada will replace the formula for equalization payments wit
 https://www.peoplespartyofcanada.ca/equalization_fairness_for_all_provinces/?recruiter_id=964689
 
 
+====================================================
 
+
+Reducing the corporate tax rate, & abolishing the capital gains tax will help entrepreneurs and encourage investment in Canada.  A PPC government will create an environment for Canada's economy to be competitive, once again.
+https://www.peoplespartyofcanada.ca/economy_encouraging_investment_and_productivity_growth/?recruiter_id=964689
+
+#PeoplesPartyMakingCdnsRicher 
+
+
+
+The PPC will exit the Paris Agreement and abolish both the carbon tax and subsidies for green energy.
+https://www.peoplespartyofcanada.ca/global_warming_and_environment_rejecting_alarmism_and_focusing_on_concrete_improvements/?recruiter_id=964689
+
+#PeoplesPartyMakingCdnsRicher 
 
 
 

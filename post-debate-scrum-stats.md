@@ -1,12 +1,12 @@
 Post-Debate Scrum | Views | Likes | Dislikes | Approval
 --- | ---: | ---: | ---: | ---:
-Maxime Bernier       |  87,735 |   4,844 |     297 | 94%
-Andrew Scheer        |  72,797 |     861 |     830 | 51%
-Jagmeet Singh        |  50,195 |     609 |     496 | 55%
-Justin Trudeau       |  26,634 |     251 |     847 | 23%
-Elizabeth May        |   9,006 |     147 |     297 | 33%
+Maxime Bernier       |  88,422 |   4,864 |     297 | 94%
+Andrew Scheer        |  73,060 |     864 |     837 | 51%
+Jagmeet Singh        |  50,587 |     611 |     501 | 55%
+Justin Trudeau       |  26,769 |     251 |     855 | 23%
+Elizabeth May        |   9,128 |     147 |     302 | 33%
 
-As of: 2019-10-17 20:00:08
+As of: 2019-10-18 09:00:08
 
 **Video Links**
 - [Maxime Bernier](https://youtu.be/X_IUY25ajUU)
